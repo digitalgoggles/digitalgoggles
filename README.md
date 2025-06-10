@@ -1,2 +1,2 @@
-I am Cooper and I like stuff... uh like mario's pretty cool, right? yeah. uh I have linux on my laptop. Actually cool fact is I don't want linux but I dont really have a choice. I have some Apple stuff too. So, I might do some code here, maybe... I will use ChatGPT to help with the code though. So uh thats it I guess.
+I am Cooper and I like stuff... uh like mario's pretty cool, right? So, I might do some code here, maybe... I will use ChatGPT to help with the code though. So uh thats it I guess.
 My email is digitalgoggles4@gmail.com and you can find me elsewhere if you look, like im on youtube, twitch, bluesky all that.
